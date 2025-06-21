@@ -1,4 +1,4 @@
-![views](https://komarev.com/ghpvc/?username=seraphyc&color=BFB989&style=flat&label=𖹭+bluebirds)
+![views](https://komarev.com/ghpvc/?username=seraphyc&color=876198&style=flat&label=𖹭+bluebirds)
 <p align="center">
 ────────── ᨳଓ ──────────
 </p>
