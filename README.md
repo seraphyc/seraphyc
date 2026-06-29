@@ -3,7 +3,7 @@
 ────────── ᨳଓ ──────────
 </p>
 
-![purely](https://files.catbox.moe/wszvzv.png)
+![purely](https://files.catbox.moe/mmdm7h.png)
 <p align="center">
 ────────── ᨳଓ ──────────
 </p>
