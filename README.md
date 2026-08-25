@@ -1,4 +1,4 @@
-![views](https://komarev.com/ghpvc/?username=seraphyc&color=4E1C1F&style=flat&label=𖹭)
+![views](https://komarev.com/ghpvc/?username=seraphyc&color=4E1C1F&style=flat&label=orders_taken+𖹭)
 <p align="center">
 ────────── ᨳଓ ──────────
 </p>
